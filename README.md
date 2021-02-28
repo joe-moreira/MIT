@@ -1,3 +1,3 @@
 # MIT - Course
 
-opa!
+MIT Rules! ;-)
